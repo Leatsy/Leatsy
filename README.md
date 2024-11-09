@@ -1,3 +1,5 @@
 # About me
 
-Here is LEATSY-bot with LEATSY and Confucius.
+Stay hungry. Stay foolish.
+Save myself. Save others.
+--Leatsy
