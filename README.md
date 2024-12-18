@@ -1,3 +1,3 @@
 # About me
 
-666
+HERE'S LEATSY FROM NJU.
